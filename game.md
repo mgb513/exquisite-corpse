@@ -1,6 +1,6 @@
 ## Exquisite Corpse (2025)
 1. I Git, therefore
-2. 
+2. it will take years to be approved
 3.
 4.
 5.
